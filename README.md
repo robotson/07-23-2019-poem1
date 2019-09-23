@@ -131,7 +131,7 @@ design fiction progress
 a panel convened and decided  
 an award would be offered  
 and a declaration of oblivion  
-preferred to the probate outfit  
+preferred to the probable outfit  
 most suitably in range to  
 the prophet  
 
