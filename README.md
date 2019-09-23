@@ -15,7 +15,7 @@ to recieve over the air updates
 and left to keep driving industrial  
 processes long after the piping  
 has frozen and burst a dozen  
-winters since humans last card  
+winters since humans last cared  
 for them, some dream of the  
 funhouse and carnival contraption  
 hydraulic motion controlled seats  
